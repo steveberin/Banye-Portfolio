@@ -1,3 +1,3 @@
 #Portflio
 
-Banye Stephen Berinyuy
+Banye Stephen Berinyuy.
